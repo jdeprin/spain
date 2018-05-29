@@ -19,6 +19,7 @@
 
 **6/13** Hotel Urdanibia Park, Irun
 > Jaizubia Hiribidea, 61, 20305 Irún, Spain +34943630440
+
 **6/13** Barcelona Saints to Irun
 > Ticket reference : MZ3GTJ,  Train 00530 3:30pm
 
