@@ -1,3 +1,3 @@
 # spain
 
-+ [itenary](./itenary.md)
++ [itinerary](itinerary.md)
