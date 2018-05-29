@@ -1,6 +1,5 @@
-# itinerary
+# Itinerary
 
-### updated 5/28 @ 20:35 pst
 ---
 **6/21** Rest day in Bilbao
 > Hotel Ria de Bilbao, Ribera de Deusto, 32 (Deustuko Erribera, 32), 48014 Bilbao, Spain +34 944 76 50 60
