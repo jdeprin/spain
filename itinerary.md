@@ -22,6 +22,9 @@
 **6/13** Barcelona Saints to Irun
 > Ticket reference : MZ3GTJ,  Train 00530 3:30pm
 
+**6/12** Sagrada Família @ 11:15
+> Your reservation number is: 15006348
+
 **6/11** Ten To Go Hostel in Barcelona.
 > Carrer de Valladolid, 43 08014 +34931389032
 
