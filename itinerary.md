@@ -12,9 +12,9 @@
 
 **6/17** Zarautz to Deba
 
-**6/15** San Sebastian to ZZarautz
+**6/15** San Sebastian to Zarautz
 
-**6/14** Irun to San Ssebastian
+**6/14** Irun to San Sebastian
 
 **6/13** Hotel Urdanibia Park, Irun
 > Jaizubia Hiribidea, 61, 20305 Irún, Spain +34943630440
