@@ -1,6 +1,10 @@
 # Itinerary
 
+
 ---
+**7/28** flight from Paris to Oakland
+> Norwegian air flight DY 7079.  Paris Charles de Gaulle to OAK  @16:25. reference number PNTYIS
+
 **6/21** Rest day in Bilbao
 > Hotel Ria de Bilbao, Ribera de Deusto, 32 (Deustuko Erribera, 32), 48014 Bilbao, Spain +34 944 76 50 60
 
