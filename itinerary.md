@@ -19,7 +19,7 @@
 **6/15** San Sebastian to Zarautz
 
 **6/14** Irun to San Sebastian
-staying at la Sirena in San Sebastian.
+> staying at la Sirena in San Sebastian.
 
 **6/13** Hotel Urdanibia Park, Irun
 > Jaizubia Hiribidea, 61, 20305 Irún, Spain +34943630440
