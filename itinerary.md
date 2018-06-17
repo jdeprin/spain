@@ -14,9 +14,11 @@
 
 **6/18** Deba to Markina-Xemein
 
-**6/17** Zarautz to Deba
+**6/17** Getaria to Deba
+> Albergue de Peregrinos de Deba Arakistain Plaza, 3, 20820 Deba, Gipuzkoa
 
-**6/15** San Sebastian to Zarautz
+**6/15** San Sebastian to Getaria
+> Pension Iribar Aldamar Kalea, 23, 20808 Guetaria, Guipúzcoa
 
 **6/14** Irun to San Sebastian
 > staying at la Sirena in San Sebastian.
