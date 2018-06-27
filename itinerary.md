@@ -5,6 +5,15 @@
 **7/28** flight from Paris to Oakland
 > Norwegian air flight DY 7079.  Paris Charles de Gaulle to OAK  @16:25. reference number PNTYIS
 
+**6/27** Santander to Santilla del Mar
+> Albergue / Convento
+
+**6/25-26** Güemez to Somo / Santander
+> Pensión Meve Somo
+
+**6/24** Santoña to Güemez
+> Padre Ernesto Albergue
+
 **6/23** Castro-Urdiales to Santoña
 > Pensión Alojamiento Miramar
 
